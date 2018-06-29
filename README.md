@@ -1,0 +1,2 @@
+# Assam-TET-2019
+Assam State Government is soon going to organize the <a href="https://professoridea.com/assam-tet-2019-exam/">Assam TET 2019</a>. Application Forms for Assam TET Exam will be issued in upcoming days and all the Aspirants Can Download the Application Forms foe Assam TET 2019 Exam Soon. RMSAAA (Rasthriya Madhyamik Siksha Abhijan of Assam) soon going to publish the official notification for the Assam TET Exam 2019. Each and every Year State Government of Assam organize this exam and each year a large Number of Aspirants apply for this exam.
